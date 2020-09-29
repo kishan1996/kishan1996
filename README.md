@@ -1,4 +1,4 @@
-### Hi 👋, I'm Kishan Menaria I am BTech CSE grad student in Computer Science from SRM Institute of Science and Technology, Chennai. I aspire to be an entrepreneur and am passionate to build and design products for the betterment of the society. I want to contribute and give back to the society as much as possible and help make the world a better place. kishan1996
+### Hi 👋, I'm Kishan Menaria I am BTech CSE grad from SRM Institute of Science and Technology, Chennai. I aspire to be an entrepreneur and am passionate to build and design products for the betterment of the society. I want to contribute and give back to the society as much as possible and help make the world a better place. kishan1996
 
 
 - 🔭 I’m currently working on many personal data science projects and Junior Data Scientist Intern at @INeuron.
