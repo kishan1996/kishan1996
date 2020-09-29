@@ -8,4 +8,4 @@
 - 💬 Ask me about Machine Learning, Deep Learning, Artificial Intelligence and Android Development and Youtube Channel and Keyword, tags SEO, Youtube Thumbnail, Video Editing and all knowledge about youtube channel. 
 - 📫 How to reach me at kishanmenaria321@gmail.com
 - ⚡ Fun fact: I am interested in Space and gaining knowledge of how space shuttles and about galaxies and all.
-https://github.com/kishan1996 https://www.linkedin.com/in/kishan-menaria-a80b10198/ https://www.instagram.com/menaria__kishan/
+https://github.com/kishan1996 https://www.linkedin.com/in/kishan-menaria-a80b10198/ https://www.instagram.com/menaria__kishan/ https://inblog.in/@kishanmenaria321
